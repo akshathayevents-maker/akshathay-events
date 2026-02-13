@@ -1,1 +1,0 @@
-# akshathay-events
